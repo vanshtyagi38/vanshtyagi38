@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tanishka
+- 👋 Hi, I’m @Vansh
 - 
 - 👀 I’m interested in Innovation 
 - 🌱 I’m Web-App Developer
