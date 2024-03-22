@@ -3,8 +3,8 @@
 - 👀 I’m interested in Innovation 
 - 🌱 I’m Web-App Developer
 - 🌟 i'm a blockchain enthusiast
-- 💞️ I’m looking to collaborate on CLOUD COMPUTING 
-- 📫 How to reach me ...https://www.linkedin.com/public-profile/settings
+- 📫 How to reach me ...www.linkedin.com/in/vanshtyagi-campaigningsource
 - Check my Startup Project : www.campaigningsource.com
--  Check my Startup Project : https://langarvala.vercel.app/
+- Check my Startup Project : https://Daankaro.org/
+- Check my Startup Project : https://iapple.co.in/
 <!---
